@@ -1,1 +1,1 @@
-![Image](https://github.com/user-attachments/assets/908fdb95-8d3c-47c2-b8de-6a999ac4b7fb)
+<div align="center"> <img src="(https://github.com/user-attachments/assets/908fdb95-8d3c-47c2-b8de-6a999ac4b7fb"> </div> <div align="center"> <img src="https://media.tenor.com/A-Cc_uGZVQEAAAAj/lain-serial-experiments-lain.gif"></img> </div>
